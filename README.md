@@ -104,8 +104,8 @@ We welcome contributions from the community!
 
 ## 💬 **Let’s Connect!**
 
-- [LinkedIn](https://www.linkedin.com/in/nitish272003)
-- [Personal Website](https://nitish272003.github.io)
-- [Email](nitish.kssaravanan@gmail.com)
+- [LinkedIn](https://www.linkedin.com/in/nandhinidevi2605)
+- [Personal Website](https://github.com/nandhinidevi262002)
+- [Email](nandhinidevis2023@gmail.com)
 
 ---
